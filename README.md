@@ -1,1 +1,1 @@
-![](https://github.com/Sunl1ght-Rim/Sunl1ght-Rim/blob/main/epigraph.png)
+![](https://github.com/Sunlight-Rim/Sunlight-Rim/blob/main/epigraph.png)
